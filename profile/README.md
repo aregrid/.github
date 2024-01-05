@@ -1,4 +1,4 @@
-<h3><center>Aregrid.com is designed for businesses of all sizes, ensuring seamless integration and enhanced efficiency.</center></h3>
+<h3><center> Embrace your digital world, indulge in the joy of gaming.</center></h3>
 
 <br/>
 
